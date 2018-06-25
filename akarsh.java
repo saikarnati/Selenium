@@ -1,0 +1,1 @@
+akarsh is the dumbest kid in the whole world who is as black as an ape and also has really funny hair which looks more like a horse tail
